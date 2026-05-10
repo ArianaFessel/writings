@@ -14,7 +14,7 @@ In 22-Feb-2026 There was a single change to word choice and structure. Originall
 
 Four-Wishes-31-Jan-2026 My very first short story and a first piece I consider to have been written well from the very beginning. It was improved multiple times by changing word choice and style. There had been no structural changes, since I had a vague idea of everything I wanted to include beforehand. It was finished in about an hour.
 
-Nearsighted-31-Jan-2026 Is an excerpt from the same work as 22-Feb-2026, but this one is still planned to be included. It is doubtful that it will affect reading experience in future, since the novel isn't going to be published anytime soon. This part specifically underwent minimal changes, which were mostly related to word choice and small details.
+Nearsighted-31-Jan-2026 Is an excerpt from the same work as 22-Feb-2026, but this one is planned to remain included. It is doubtful that it will affect reading experience in future, since the novel isn't going to be published anytime soon if at all. This part specifically underwent minimal changes, which were mostly related to word choice and small details.
 
 Reminder-08-Mar-2026 Had three rewritings and significant changes to structure. It was, at first, a description of imagery for the sake of imagery and nothing more.
 
