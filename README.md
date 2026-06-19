@@ -20,19 +20,21 @@ These pieces are ordered by the date their first draft or outline was written, u
 
 004 – A poetic short story. Numerous changes to punctuation and word choice. Its visual structure used to be less claustrophobic, but I decided that the current one suits this story better.
 
+006 – A short story. Only a few changes to word choice.
+
 008 – A short story. Done with a particular character in mind. Minimal changes to word choice and punctuation. 
 
 <br>
 
 “Four Wishes” – My first short story. There were a lot of changes, but only to word choice and visual structure.
 
-“Nearsighted” – An excerpt from a novel. Minimal changes, mostly word choice and small details.
+“Nearsighted” – An excerpt from a novel. Minimal changes, mostly word choice and details.
 
 “Reminder” – A poem. Originally just an imagery description. Three rewritings and significant changes to structure.
 
 <br>
 
-Nothing was directly borrowed from others' works. All characters belong to me, as well, and they all are fictional.
+Nothing was directly borrowed from others' works. Everything here belongs to me and is fictional.
 
 <br>
 
