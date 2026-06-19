@@ -32,7 +32,7 @@ These pieces are ordered by the date their first draft or outline was written, u
 
 <br>
 
-Apparently, it was ever since June 2025 that I was working, or trying to work, on a novel. Still WIP.
+Nothing was directly borrowed from others' works. All characters belong to me, as well, and they all are fictional.
 
 <br>
 
