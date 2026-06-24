@@ -1,3 +1,7 @@
-Here I publish personal reflections with concepts or ideas, attempts at making essays or any other kinds of nonliterary writings. They may or may not be for an audience, and will differ in their accessibility. It is likely I will eventually decide to polish them if needed, but there is not guarantee.
+Here I publish reflections and concepts, attempts at essays, or any other kinds of nonliterary writing.
 
-The day when a concept or an idea had first appeared is placed next to the writing's title.
+These may or may not be made for an audience and likely will differ in accessibility. It is most probable that I will eventually fix all mistakes if any are present, and change the style if needed.
+
+<br>
+
+Files are dated with the day the idea had first appeared in my head.
