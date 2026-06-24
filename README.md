@@ -2,39 +2,35 @@ WARNING: They are not primary preoccupations, but this repository might contain 
 
 Genres: psychological and/or philosophical fiction, literary prose, poetry.
 
-<br>
-
-Supposedly, it is because English is not my native language, that I can narrate with ease.
-
 These pieces are ordered by the date their first draft or outline was written, unless entitled.
 
 <br>
 
-000 – My first attempt at writing poetry. It’s undergone numerous changes ever since. Originally it was done only to experiment with style. Due to last changes to it, however, I no longer think it’s bad.
+000 – poem.
 
-001 – A scene written with a particular character in mind. It had a single meaningful rewriting that changed structure. Others are due to word choice.
+001 – poem / poetic prose.
 
-002 – Another scene with the same character in mind. Originally done for a novel, but didn’t suit the story. There was a single change to structure and word choice.
+002 – poem / poetic prose / story fragment.
 
-003 – A short story. It’d been re-written multiple times. As yet, I still consider it a failure.
+003 – short story.
 
-004 – A poetic short story. Numerous changes to punctuation and word choice. Its visual structure used to be less claustrophobic, but I decided that the current one suits this story better.
+004 – poetic short story.
 
-006 – A short story. Only a few changes to word choice.
+006 – short story; something of a fable.
 
-008 – A short story. Done with a particular character in mind. Minimal changes to word choice and punctuation. 
-
-<br>
-
-“Four Wishes” – My first short story. There were a lot of changes, but only to word choice and visual structure.
-
-“Nearsighted” – An excerpt from a novel. Minimal changes, mostly word choice and details.
-
-“Reminder” – A poem. Originally just an imagery description. Three rewritings and significant changes to structure.
+008 – decent short story.
 
 <br>
 
-Nothing was directly borrowed from others' works. Everything here belongs to me and is fictional.
+“Four Wishes” – short story.
+
+“Nearsighted” – poetic prose / a self-contained novel excerpt.
+
+“Reminder” – poem.
+
+<br>
+
+Nought here was borrowed directly from any existing works. Everything is fictional and belongs only to me.
 
 <br>
 
