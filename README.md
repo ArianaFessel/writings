@@ -30,7 +30,7 @@ These pieces are ordered by the date their first draft or outline was written, u
 
 <br>
 
-Nought here was borrowed directly from any existing works. Everything is fictional and belongs only to me.
+Nothing here was borrowed directly from any existing works. Everything is fictional and belongs only to me.
 
 <br>
 
