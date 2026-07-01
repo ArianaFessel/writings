@@ -1,8 +1,8 @@
-WARNING: They are not primary preoccupations, but this repository might contain disturbing elements, such as body horror, nudity, or mention of suicide. Read at your own risk.
+CONTENT WARNING: While they are not primary preoccupations, this repository might contain disturbing elements, such as gore, mention of suicide, or body horror. Below you can see specific warnings listed for every piece individually, if any is needed.
 
 Genres: psychological and/or philosophical fiction, literary prose, poetry.
 
-These pieces are ordered by the date their first draft or outline was written, unless entitled.
+These pieces are ordered by the date their first draft or outline was written, unless entitled. A title does not imply superiority in comparison with other works, anyhow. They all may or may not differ in quality.
 
 <br>
 
@@ -10,27 +10,27 @@ These pieces are ordered by the date their first draft or outline was written, u
 
 001 – poem / poetic prose.
 
-002 – poem / poetic prose / story fragment.
+002 – poem / poetic prose / story fragment. (WARNING: blood)
 
 003 – short story.
 
-004 – poetic short story.
+004 – short story / lyric prose.
 
-006 – short story; something of a fable.
+006 – short story / something of a fable. (WARNING: killing)
 
-008 – decent short story.
+008 – short story. (WARNING: suicide mention, body horror imagery)
 
 <br>
 
 “Four Wishes” – short story.
 
-“Nearsighted” – poetic prose / a self-contained novel excerpt.
+“Nearsighted” – poetic prose / a self-contained novel excerpt. (WARNING: violence)
 
-“Reminder” – poem.
+“Reminder” – poem. (WARNING: insects)
 
 <br>
 
-Nothing here was borrowed directly from any existing works. Everything is fictional and belongs only to me.
+Nothing was directly borrowed from any existing works. Everything here is fictional and belongs to this repository's owner.
 
 <br>
 
